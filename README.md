@@ -1,0 +1,3 @@
+- Hi,I’m @ArthurG1205,i'm from Brazil
+-  I’m interested in videogames,cars and videos
+-  I’m currently studying on Alura
